@@ -1,1 +1,0 @@
-# HOJA-DE-VIDA
